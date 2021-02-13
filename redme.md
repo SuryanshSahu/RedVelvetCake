@@ -1,0 +1,1 @@
+1/2 cup (113 grams) unsalted butter, at room temperature. 1 1/2 cups (300 grams) granulated white sugar. 1 teaspoon (4 grams) pure vanilla extract. 1 cup (240 ml) buttermilk, at room temperature. 1 teaspoon (4 grams) baking soda.
